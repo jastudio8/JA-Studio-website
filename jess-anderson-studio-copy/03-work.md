@@ -84,6 +84,15 @@ A selection of recent projects. Coaching practices, naturopathic clinics, retrea
 
 ---
 
+### Elly Candi PT
+*Fifteen years of women's strength coaching, given a Shopify home — the RESHAPE program, free guides and one calm enquiry pipeline.*
+**Scope** — Shopify · RESHAPE program page · Free resource funnel · Typeform intake · ManyChat
+**Sectors** — Coaching · Fitness · Women's wellbeing
+**Year** — 2026
+→ Read case study
+
+---
+
 ## SECTION — SECTORS WE WORK IN
 
 A short, honest list. Not because we won't do other things, but because if you're in one of these, we've already seen the patterns.

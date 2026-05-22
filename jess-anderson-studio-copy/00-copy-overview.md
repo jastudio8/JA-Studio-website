@@ -34,7 +34,7 @@ case-studies/
 - 1–10 person teams that have outgrown DIY but don't want a faceless agency
 - Founders who care about how the work *feels* — not just the deliverable
 
-**Proof:** Hayls & Kyle · Live Well Movement · Custom Made Coaching · AJ Health · The Booty Movement · The Basic Co · Fitventure Retreats
+**Proof:** Hayls & Kyle · Live Well Movement · Custom Made Coaching · AJ Health · The Booty Movement · The Basic Co · Fitventure Retreats · Elly Candi PT
 
 ## SEO notes (for build phase)
 
